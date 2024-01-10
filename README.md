@@ -2,7 +2,7 @@
 - 👀 He is interested in making friends with who have responsibility.
 - 🌱 He is currently learning French, Japanese and more.
 - 💞️ He is looking to collaborate on project with new idea.
-- 📫 Send mail to reach him.
+- 📫 Send mail to reach him by **Jacob**(2023-).
 
 <!---
 w-job/w-job is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
